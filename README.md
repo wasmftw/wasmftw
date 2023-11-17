@@ -1,1 +1,1 @@
-Alter ego: @SauravMaheshkar
+Alter ego: [@SauravMaheshkar](https://github.com/SauravMaheshkar)
